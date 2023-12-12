@@ -15,3 +15,6 @@ https://www.notion.so/hwangonjang/efd3ba3cb13540b58ef8026fb132a2d6?pvs=4
 
 - 아직 100% 완강은 아니지만 따냈던 수료증!
 ![img_3.png](img_3.png)
+
+
+본 게시물은 패스트캠퍼스 수강 후기 이벤트 참여를 위해 작성되었습니다
